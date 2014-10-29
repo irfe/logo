@@ -1,0 +1,1 @@
+Logo del Instituto Regional Federico Errázuriz
